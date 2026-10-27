@@ -1,5 +1,4 @@
-### Websites that win customers.  
-### Platforms that drive growth.
+### Websites that win customers. Platforms that drive growth.
 
 **Wookye** designs, builds and maintains high-performing websites and custom web applications for small and mid-sized businesses.
 
